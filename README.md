@@ -1,6 +1,6 @@
 - 👋 Oi, eu sou a Anna Luiza ortêncio Mendes Alves.
 - 👀 Estoy interessado em estudar.
-- 🌱 Atualmente estou aprndendo informática.
+- 🌱 Atualmente estou aprndendo informática, pensamento computacional, matemática, biologia, e tudo que envolve natura e animais.
 - 💞️ Estou procurando colaborar em meus estudos, para o futuro.
 - 📫 você pode chegarv até mim através do meu e-mail: a.anna@escola.pr.gov.br; ou pelo meu número de celular: (44)9-9863-5116.
 
